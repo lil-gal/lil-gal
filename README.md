@@ -2,7 +2,7 @@
 - 👀 I’m interested in seeing your d-
 - 🌱 I’m currently learning the java language
 - 💞️ I’m looking to collaborate on nothing :3
-- 📫 How to reach me ...
+- 📫 How to reach me Please, dont.
 - 😄 Pronouns: any/all
 - ⚡ Fun fact: i like reading
 
